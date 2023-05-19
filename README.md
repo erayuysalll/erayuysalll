@@ -11,3 +11,8 @@ On my GitHub profile, I share the projects I'm working on and I'm here to share,
 I suggest you visit my GitHub profile to learn more about me and browse my projects. If you want to collaborate on a project or ask any questions, you can contact me via e-mail. I am always excited to collaborate and meet new people.
 
 Thank you and welcome to visit my profile!
+
+
+ @instagram : erayuysalllx
+ @gmail : erayuysal01bb@gmail.com
+ @linkedin : https://www.linkedin.com/in/eray-uysal-98246b237/
